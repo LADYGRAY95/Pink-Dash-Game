@@ -17,3 +17,23 @@ Press the "Alt" key and the "F4" key simultaneously (Alt+F4) on Windows.
 On Mac, press the "Command" key and the "Q" key simultaneously (Command+Q).
 This will close the game and return you to your operating system.
 Thank you for downloading Pink Dash ! Have a great time playing, and don't forget to provide feedback to help the developer make the game even better.
+
+
+
+
+![2d adventure 12_6_2023 12_53_28 PM](https://github.com/LADYGRAY95/Pink-Dash-Game/assets/120677777/d5da8079-ba81-4fc9-a4f3-11241c7307f3)
+
+![2d adventure 12_6_2023 12_53_43 PM](https://github.com/LADYGRAY95/Pink-Dash-Game/assets/120677777/68975109-2b24-403c-99cb-a54263c8c565)
+
+
+
+
+![2d adventure 12_6_2023 12_56_04 PM](https://github.com/LADYGRAY95/Pink-Dash-Game/assets/120677777/012688be-83ca-4aae-a3a6-2e581f54e2ab)
+
+
+
+![2d adventure 12_6_2023 12_57_02 PM](https://github.com/LADYGRAY95/Pink-Dash-Game/assets/120677777/a535aac3-8787-46e6-83c9-8e2a10249866)
+
+
+
+![2d adventure 12_6_2023 12_58_36 PM](https://github.com/LADYGRAY95/Pink-Dash-Game/assets/120677777/30ca4c20-23ba-40e9-a4ac-8362c704aad2)
